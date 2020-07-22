@@ -1,2 +1,3 @@
-# gitanjalichouhan.github.com
-My personal website
+# Gitanjali Chouhan 🎉
+
+(Instagram)[https://www.instagram.com/gitanjali_18/]
